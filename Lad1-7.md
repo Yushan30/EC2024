@@ -1,2 +1,3 @@
-![1000002126](https://github.com/Yushan30/EC2024/assets/162285019/c6be7e61-8107-495b-a077-962c02a57b00)
+![1000002127](https://github.com/Yushan30/EC2024/assets/162285019/2e81423d-bf12-4ce0-909c-76702cadecce)
+
 
