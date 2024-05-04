@@ -4,7 +4,6 @@
 
 ![Untitled (1)](https://github.com/Yushan30/EC2024/assets/162285019/630a0e64-b4cc-4d50-8162-0b6186c35ddc)
 實作3:
-
 ![Untitled (3)](https://github.com/Yushan30/EC2024/assets/162285019/f0829e78-aa4d-4ece-ba2e-7ff3f7a83135)
 實作4:
 
