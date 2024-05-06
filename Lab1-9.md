@@ -1,2 +1,2 @@
-![image](https://github.com/Yushan30/EC2024/assets/162285019/7b5fb833-7334-4d43-94c2-21a56fe00b49)
+![666](https://github.com/Yushan30/EC2024/assets/162285019/9e2c3f29-ac9a-4bab-b30f-99108671911b)
 
